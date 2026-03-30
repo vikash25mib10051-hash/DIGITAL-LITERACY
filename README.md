@@ -1,1 +1,1 @@
-# DIGITAL-LITERACY
+Name-VIKASH RAJ PATEL reg.No-25MIB10051 Branch-Integrated Mtech Ai ans Bioinformatics year-2025-2026 I am a first year year student passionate about learing programming and building real-world projects.
